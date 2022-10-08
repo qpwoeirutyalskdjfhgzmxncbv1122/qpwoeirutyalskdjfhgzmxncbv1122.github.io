@@ -1,4 +1,4 @@
-   Grade 11 Functions 
+
 
 Grade 11 Functions
 
